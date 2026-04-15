@@ -1,5 +1,6 @@
 
 <img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/3ab25a3a-8e6c-4674-8ab8-de76bf45c57b" />
+
 # Fortnite Visual Assistant - Download Best SAFE External Fortnite Tool with See Through Walls & Auto-Targeting
 
 Welcome to the ultimate resource for **Fortnite Visual Assistant** — the lightweight, script-powered, community-trusted tool that has dominated the Fortnite modding scene for years. Whether you're a seasoned player or a complete beginner stepping into the world of game customization for the first time, this guide is everything you need. Fortnite Visual Assistant delivers an unmatched blend of safety, simplicity, and raw power — all completely **free**. Read on to discover every feature, installation path, configuration tip, and community insight available in one place.
